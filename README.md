@@ -2,3 +2,4 @@
 
 
 あいうえお
+kakikukekko
